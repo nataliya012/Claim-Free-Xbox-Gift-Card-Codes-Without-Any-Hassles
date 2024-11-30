@@ -6,7 +6,8 @@ Hey Friends, Are you ready to level up your gaming experience with some exciting
 
 
 
-**[👉 CLICK HERE GET FREE]https://usaofferzon.com/giftcard)**
+
+**[👉 CLICK HERE GET FREE](https://usaofferzon.com/giftcard)**
 
 
 
